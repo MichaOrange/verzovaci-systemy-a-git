@@ -1,7 +1,7 @@
-# Brambora
+# Brambůrečka
 
 Kutálí se ze dvora
-takhle velká brambora.
+takhle velká brambora. - Bája
 
 Neviděla, neslyšela,
 spadla na ni závora.
